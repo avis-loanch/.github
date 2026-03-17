@@ -12,7 +12,7 @@ Les prêteurs partenaires de **Loanch** sont Ammana en Indonésie 🇮🇩, Tamb
 
 [![Investissement et finance en ligne](https://images.unsplash.com/photo-1611974789855-9c2a0a7236a3?auto=format&fit=crop&w=1170&q=80)](https://loanch.com/fr)
 
-### 🔗 **[Découvrir Loanch — site officiel](https://loanch.com/fr)**
+### 🔗 **[Découvrir Loanch — site officiel]([https://loanch.com/fr](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f))**
 
 ---
 
@@ -57,7 +57,7 @@ Comme tout investissement, **Loanch** présente des risques qu'il est important 
 - **Gouvernance en mutation** : rachat prévu par Fingular, liens historiques avec l'écosystème Cashwagon
 - **Communauté encore restreinte** : seulement 5 avis sur Trustpilot (note : 3,4/5)
 
-[![Analyse des risques financiers](https://images.unsplash.com/photo-1454165804606-c3d57bc86b40?auto=format&fit=crop&w=1170&q=80)](https://loanch.com/fr)
+[![Analyse des risques financiers](https://images.unsplash.com/photo-1454165804606-c3d57bc86b40?auto=format&fit=crop&w=1170&q=80)](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f)
 
 ---
 
@@ -125,7 +125,7 @@ Oui. Les résidents français peuvent s'inscrire et investir sur **Loanch**. Les
 **Comment sont imposés les revenus Loanch en France ?**
 Les intérêts perçus sur **Loanch** sont soumis au Prélèvement Forfaitaire Unique (PFU) de 30 %. Il est aussi possible d'opter pour le barème progressif de l'impôt sur le revenu si c'est plus avantageux.
 
-[![Plateforme d'investissement en ligne](https://images.unsplash.com/photo-1551288049-bebda4e38f71?auto=format&fit=crop&w=1170&q=80)](https://loanch.com/fr)
+[![Plateforme d'investissement en ligne](https://images.unsplash.com/photo-1551288049-bebda4e38f71?auto=format&fit=crop&w=1170&q=80)](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f)
 
 ---
 
@@ -139,10 +139,9 @@ Les intérêts perçus sur **Loanch** sont soumis au Prélèvement Forfaitaire U
 
 ## 🔗 Ressources utiles
 
-- [Site officiel Loanch](https://loanch.com/fr)
+- [Site officiel Loanch](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f)
 - [FAQ officielle Loanch](https://loanch.com/fr/faq)
 - [Avis Trustpilot Loanch](https://www.trustpilot.com/review/loanch.com)
-- [Avis et comparatifs P2P — Rue de la Banque](https://www.rue-de-la-banque.com/avis-loanch.html)
 
 ---
 
