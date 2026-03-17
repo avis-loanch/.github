@@ -12,7 +12,7 @@ Les prêteurs partenaires de **Loanch** sont Ammana en Indonésie 🇮🇩, Tamb
 
 [![Investissement et finance en ligne](https://images.unsplash.com/photo-1611974789855-9c2a0a7236a3?auto=format&fit=crop&w=1170&q=80)](https://loanch.com/fr)
 
-### 🔗 **[Découvrir Loanch — site officiel]([https://loanch.com/fr](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f))**
+### 🔗 **[Découvrir Loanch — site officiel](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f)**
 
 ---
 
