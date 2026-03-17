@@ -43,7 +43,7 @@ Le modèle économique de **Loanch** repose sur les commissions versées par les
 - Programme de fidélité : jusqu'à +1 % de rendement bonus
 - Programme de parrainage généreux : 1 % de cashback pendant 90 jours
 
----
+### ✅ **[Tester Loanch avec un investissement de 10 €](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f)**
 
 ## ⚠️ Les inconvénients et risques de Loanch
 
@@ -74,6 +74,8 @@ Comment se positionne **Loanch** face aux autres plateformes de crowdlending en 
 | Régulation UE | ❌ | ✅ | ❌ | ❌ |
 | Frais | 0 % | 0 % | 0 % | 0 % |
 | Lancement | 2023 | 2015 | 2017 | 2017 |
+
+### 📊 **[S'inscrire sur Loanch avec le bonus parrainage (1% pendant 90 jours)](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f)**
 
 ---
 
@@ -132,6 +134,8 @@ Les intérêts perçus sur **Loanch** sont soumis au Prélèvement Forfaitaire U
 ## 🏁 Notre verdict sur Loanch
 
 **Loanch** est une option intéressante pour **diversifier un portefeuille P2P** avec une exposition à l'Asie du Sud-Est et des rendements supérieurs à la moyenne du marché. Le buy back rapide (30 jours) et l'absence de frais sont de vrais atouts. En revanche, la jeunesse de la plateforme et l'absence de régulation européenne imposent de **ne pas y concentrer une part trop importante de son capital**.
+
+### 🚀 **[Créer mon compte sur Loanch et commencer à investir](https://c.trackmytarget.com/?a=mt4qfe&i=ecye8f)**
 
 **Notre conseil** : démarrez avec 50 à 100 €, testez pendant 2-3 mois, et augmentez progressivement si les remboursements se passent bien.
 
